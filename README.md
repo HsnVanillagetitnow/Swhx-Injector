@@ -18,3 +18,9 @@ Forlorn – for telling/providing this method that made this possible.
 Disclaimer
 
 Use responsibly. I am not responsible for bans this is Educational.
+
+# download here lol
+
+https://filerift.com/file/eA5413IQj5
+
+sorry for this shitty proj i just wanted to do smth tbh
