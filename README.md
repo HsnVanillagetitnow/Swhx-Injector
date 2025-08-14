@@ -24,3 +24,4 @@ Use responsibly. I am not responsible for bans this is Educational.
 https://filerift.com/file/eA5413IQj5
 
 sorry for this shitty proj i just wanted to do smth tbh
+just a cleaned Version of swhx Injector
